@@ -9,3 +9,9 @@ Dylan Fowler (2026). Explosive Barrel Damaged [online] Available at: https://www
 DetziStudios (2025). Stylized Post-Apocalyptic Wonky Stop Sign – Game Ready 3D Prop. [online] Fab.com. Available at: https://www.fab.com/listings/0c1d2d23-639a-4091-a188-bcc852e86ea3 [Accessed 1 Feb. 2026].
 
 ShanmukhaSrinivasa (2022). Traffic Barrier [online] Fab.com. Available at: https://www.fab.com/listings/079ed212-60c8-413b-bc84-f491116fe5fe [Accessed 1 Feb. 2026]. ‌ ‌ ‌ ‌
+
+Assets used in menus.
+
+Graffiti Empire. (2024). Graffiti Generator. [online] Available at: https://www.graffiti-empire.com/graffiti-generator/ [Accessed 7 Jan. 2026].
+
+‌Mossholder, T. (2020). brown and white brick wall. [online] Unsplash.com. Available at: https://unsplash.com/photos/brown-and-white-brick-wall-0Qvaxzh3VBo [Accessed 7 Jan. 2026].
